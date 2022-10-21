@@ -1,0 +1,3 @@
+- 👋 Olá, Sou @claudiocadu
+- 👀 Desenvolvedor, Professor e Empreendedor
+- 🌱 INFOPALMAS - Soluções em Tecnologia
